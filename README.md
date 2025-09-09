@@ -1,1 +1,1 @@
-# Yaong_Omok_Sccirpt
+# Yaong_Omok_Scirpt
